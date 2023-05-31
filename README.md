@@ -1,7 +1,7 @@
--  Hi, I’m @Thande7
+-  Hi, I’m Thande🙂
 -  I’m interested in creating projects of my own 
--  I’m currently studying Bscin software engineering 
--  I’m looking to collaborate on sharing and getting ideas
+-  I’m currently studying Bsc in software engineering 
+-  I’m always open to learning new stuff everyday😊 
 
 
 <!---
